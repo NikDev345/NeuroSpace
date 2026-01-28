@@ -256,3 +256,8 @@ adding GUI presets
 demo video for portfolio
 
 Just ask — I’ll guide you.
+
+
+- I WILL COME WITH THE NEW UPDATE WITH THIS REPO 
+AND POST IT SOON 
+STAY TUNED 
